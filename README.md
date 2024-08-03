@@ -8,3 +8,4 @@ WARNING:I AM NOT RESPONSIBLE FOR ANY WRONGDOING USING THIS SOFTWARE, EDUCATIONAL
 
 Photo:
 
+![hqdefault-1208111901](https://github.com/user-attachments/assets/8b8f02e9-dbab-4603-a9a8-62818b748884)
